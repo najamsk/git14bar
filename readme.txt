@@ -1,5 +1,3 @@
-hello
-
-by najam
-
-we need some project files
+na bahi 
+dekh bahi
+oh bahi
